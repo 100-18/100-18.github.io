@@ -1,1 +1,1 @@
-# bu-bear.github.io
+# 100-18.github.io
